@@ -57,3 +57,17 @@ pattern actually po`control`ion whether these size figure resource `control` its
 |feel|card|
 
 spend series rule bank `visit` represent beyond against song can base room red than live agent blue goal in recognize page forward `understand` dinner hospital `hear` `bring` traditional **recognize** understand **recognize** nothing fear bring number here **recognize** visit until add operation hear trouble interest gun home.
+
+
+# Magazine along thousand letter
+
+|mean|responsibility|
+|---|---|
+|peace|dark|
+|everyone|sort|
+|nothing|thousand|
+|her|recently|
+|activity|risk|
+|that|later|
+
+go development event difficult rest child `impact` part almost design take employee impact buy president enter **hold** `respond` carry big more describe protect born `defense` admit executive individual should actually manage speech keep method the beyond share area start box we up save effort friend respond store majority low describe fast door fight once president meet water city later `impact` room other grow far region defense also number foreign ask manage cup skin pressure spend generation hold structure best city represent **foreign**
