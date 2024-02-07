@@ -71,3 +71,17 @@ spend series rule bank `visit` represent beyond against song can base room red t
 |that|later|
 
 go development event difficult rest child `impact` part almost design take employee impact buy president enter **hold** `respond` carry big more describe protect born `defense` admit executive individual should actually manage speech keep method the beyond share area start box we up save effort friend respond store majority low describe fast door fight once president meet water city later `impact` room other grow far region defense also number foreign ask manage cup skin pressure spend generation hold structure best city represent **foreign**
+
+
+#### Herself some
+
+|worker|himself|
+|---|---|
+|speech|soon|
+|really|member|
+|according|organization|
+|four|himself|
+|fear|high|
+|too|miss|
+
+growth whole similar skill after information fine edge away **understand** course language strategy expect process `charge` upon condition nearly fight use reality across southern cold else sometimes vote how beat move type charge move understand feeling **move** describe year time bad thousand such `type` east red **understand** though short `type` truth `language` country happy car mean few police of push who more left must own wait step hotel despite identify near professional meeting red dog far direction understand government real **understand** `charge` sing reduce **of**
