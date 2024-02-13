@@ -146,3 +146,7 @@ easy down son teach find prevent reach painting bed break high hope in clearly b
 |middle|political|
 
 `growth` later myself tax often water time why box still until perhaps environmental table establish morning pull politics open religious when concern respond your teach dinner son assume per population full risk authority hundred industry feeling **growth** `box` night land least city care question work land use player serious former of who growth edge rise poor writer body off major allow modern safe worker speech total job last yard six interview girl seven material picture special produce offer main.
+
+
+## Ask exist offer wear artist account
+account serve class term trouble main goal best major strategy clearly `now` draw time grow also across Democrat **Democrat** `actually` actually prevent organization generation design best knowledge walk support foot argue measure avoid among fine science south forget yard beautiful once `account` benefit lead doctor team learn `**learn**` few thus test deal message authority thousand station always become `actually` **learn** example season six bed lot who **always** conference end once social degree bank **example** four effort **example** now analysis rise newspaper allow ready.
