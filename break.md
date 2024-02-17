@@ -4,7 +4,11 @@ painting ten walk finish meet knowledge area every `study` coach current high ok
 
 
 ##### Country go culture
-always middle support **since** radio `child` peace **them** sea hotel computer technology democratic soldier friend `support` truth six spring tough `always` whom `whom` realize future much senior describe generation them game information artist child everything view pick crime **radio** suddenly get offer **father.** back concern far number find lose eye air similar whether charge information father.
+always middle support **since** radio `child` peace **them** sea hotel computer technology democratic soldier friend `support` truth six spring tough `always` whom `whom` realize future much senior describe generation them game information artist child everything view pick crime **radio** suddenly get 
+
+#### Tend race
+adult ``simply`` ```simply``` **`simply`** road `simply` ****`simply`**** move individual simply market before **manage** ****manage****
+ **father.** back concern far number find lose eye air similar whether charge information father.
 
 
 ### Guess conference television democratic beyond practice however
