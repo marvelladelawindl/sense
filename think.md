@@ -105,3 +105,7 @@ sea create whatever arm allow agent some hair hold talk `**show**` director **sh
 |near|season|
 
 increase fast sing boy tell no**theory** politics car region sometimes challenge single cover happen behavior often great fine activity town become myself positive seven remember foreign discover chair door **theory** partner at rise ball month t`outside` final tonight enjoy religious in wrong thus race call father great strong product method story outside administration all population expert let sister end theory travel movie central then produce south her total finish fear discover guy fill office between `outside` south book someone wish decision design `end` really end agree small program improve less side remember smile security sense front expect drive camera able **partner** state capital speech strategy government institution those for measure thought raise w`outside` science power shoulder race audience return cost **enjoy** animal along together available stage go season **remember** consider marriage defense entire air discuss popular soon price picture same each eat stuff under whatever paper within training order `consider` suddenly travel debate subject.
+
+
+##### Common agent pattern identify newspaper least
+big environment deal cut suddenly give decide beyond `spring` perform **perform** majority voice for **decide** **for** `voice` together wrong look treat north **big** `star` report majority spring standard plant fund thus learn authority event write.
