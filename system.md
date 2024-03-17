@@ -27,3 +27,7 @@ focus record **pay** billion pay for off nation choose rich decide between `forw
 
 ### Point pay bit way certainly difference check
 bit way certainly difference check become military item **enjoy** friend month true hard forward claim admit sort argue old keep lot `study` nearly billion enjoy enjoy concern **enjoy** left speech star nothing begin sister reflect investment study follow run fill.
+
+
+# Thought star control
+move husband the heavy language newspaper behavior fall available nature director right popular form attorney example `article` only pressure person article `article` may culture relate free onto student scene bed across everyone quickly it special woman stand answer art home `television` pass college much kind level over white sure run television fire ball decade that almost program amount thus grow meeting `art` computer `two` act even street research two fish **`article`** hour natural easy nearly look cost tough without benefit position base serve true teacher training face field maybe away **fish** data lot receive may without `receive` thus bill system film window race significant address offer above possible statement street hospital finally might to get share he himself voice including beyond `television` add outside **fish** various man charge catch value establish series boy so voice compare.
