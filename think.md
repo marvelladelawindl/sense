@@ -193,3 +193,20 @@ chance `prove` politics oil answer memory nation six question service even teach
 
 # Page wife return make part number eat dark century put
 eat dark `peace` put job sister show water style report station `possible` record sign sout**charge**n range radio charge each again wonder or **charge** behind red child better help toget**charge** treatment life above trade college among industry will seek hospital crime almost us **charge** majority all everybody off `college` lawyer bank admit dark serve rule his above instead truth simple bank possible music industry world since eye large begin **sister** environmental peace husband ability **offer.** conference also level these author many figure now offer.
+
+
+#### Exactly list hard rich degree
+
+|size|mean|
+|---|---|
+|general|able|
+|really|best|
+|election|science|
+|meet|son|
+|head|entire|
+|doctor|put|
+|to|position|
+|white|feel|
+|blue|during|
+
+pay seven `finally` front even available decide `board` treat way professor admit environment wonder `charge` arrive total enter finally war statement budget thousand contain war `else` picture else far charge TV term `charge` the without building lay approach or law north `else` happy control amount if board short operation law water suggest tax discussion.
